@@ -1,5 +1,7 @@
-In this video, Taylor shares his tips on crafting a bio that’s concise, authentic and a boost to your personal brand.
+# Personal Bio & Career Overview
 
-During your career, you may need to write a document explaining your skills, abilities and qualifications. 
-This document may be a cover letter, a bio, or a personal statement. 
-Learning how to write about yourself accurately may be helpful during the job search process.
+In this project, Taylor shares practical tips on how to craft a personal bio that is concise, authentic, and effective in strengthening your personal brand.
+
+During your career journey, you may need to write a document that clearly explains your skills, abilities, and qualifications. Such documents can include a cover letter, a professional bio, or a personal statement.
+
+Learning how to write about yourself accurately and confidently is an important skill, especially during the job search process. This project focuses on understanding that process and improving self-presentation through clear and honest writing.
